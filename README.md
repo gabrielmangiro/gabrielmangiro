@@ -1,6 +1,4 @@
 ### Hey, I'm Gabriel Mangiro 👋
-🌱 I'm currently in the process of learning (a lot of learning hehe), I'm trying to create something
-cool for my first project and also trying to get my first job opportunity.
 
 🤖 I love technology and the way it helps the world solve their problems, it motivates me!
 
